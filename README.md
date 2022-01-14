@@ -1,1 +1,1 @@
-# Webtales-Japan
+# Japan
